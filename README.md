@@ -1,0 +1,1 @@
+# qogam-idea-adam
